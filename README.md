@@ -1,1 +1,0 @@
-# ittetsufukuda.github.io
